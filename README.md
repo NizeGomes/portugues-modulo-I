@@ -22,4 +22,5 @@ A Ortografia é a maneira correta de escrever as palavras no Padrão Culto do id
   * Cassada ou caçada?
   * Contenção ou contenssão?
   
- [paramais](https://www.workana.com/freelancer/552fab073376647b750088d90fae07db)
+ [paramais](https://teuportugues.blogspot.com/index.html)
+![imagem] ()
