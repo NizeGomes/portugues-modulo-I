@@ -24,4 +24,3 @@ A Ortografia é a maneira correta de escrever as palavras no Padrão Culto do id
   
  [paramais](https://teuportugues.blogspot.com/index.html)
  
-![teste](mypainting2.png)
